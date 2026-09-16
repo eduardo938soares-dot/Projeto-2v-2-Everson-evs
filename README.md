@@ -1,1 +1,0 @@
-# Projeto-2v-2-Everson-evs
